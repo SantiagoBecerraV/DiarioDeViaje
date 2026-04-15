@@ -5,3 +5,8 @@ París es mucho más que la capital de Francia: es una ciudad icónica que mezcl
 
 ## Recomendacion
 Subir a la Torre Eiffel , la Gioconda , Mona Lisa de Da Vinci es un plan casi de obligado cumplimiento.
+
+## Imagen
+
+![paripari](https://cdn2.civitatis.com/francia/paris/galeria/torre-eiffel-altura.jpg)
+
