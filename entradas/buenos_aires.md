@@ -6,3 +6,7 @@ La Ciudad Autónoma de Buenos Aires (CABA) es la capital de Argentina, conocida 
 ## Recomendaciones
 El Teatro Colón es uno de los escenarios más prestigiosos del mundo. Inaugurado en 1908, sorprende por su acústica perfecta y su arquitectura imponente. El barrio más moderno de la ciudad combina arquitectura vanguardista, paseos frente al río y restaurantes de primera. Caminar por sus diques es un plan relajado, ideal para cualquier momento del día.
 San Telmo es un barrio que respira historia y cultura. Sus calles empedradas, casas antiguas y faroles coloniales generan una atmósfera única. 
+
+## Foto
+
+![argentina](https://www.bens-lhotelpalermo.com/assets/cache/uploads/bens-hotel-palermo/buenos-aires/1920x1080/obelisco-buenos-aires-1738076906.jpeg)
