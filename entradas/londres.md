@@ -9,3 +9,6 @@ Puedes disfrutar de un cóctel en The Shard, el rascacielos más alto de la ciud
 ## Foto
 
 ![londres](https://offloadmedia.feverup.com/secretldn.com/wp-content/uploads/2017/05/13154825/fun-facts-river-thames-london-1024x663.jpg)
+
+## Informacion sobre Londres
+Londres, capital de Inglaterra, es un destino que combina historia, cultura y un vibrante ambiente urbano, una metrópolis global vibrante y cosmopolita, capital del Reino Unido, famosa por fusionar siglos de historia (con iconos como la Torre de Londres) con una modernidad vanguardista. Destaca como centro financiero, artístico y cultural mundial, famoso por su diversidad, parques reales, museos gratuitos y el río Támesis
