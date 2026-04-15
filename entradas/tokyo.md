@@ -5,3 +5,7 @@ Conocida por su bullicioso distrito de Shinjuku, su icónico edificio de la Torr
 
 ## Recomendaciones
 Shibuya 109 esta emblemática tienda departamental es responsable del estilo de moda gyaru. Teatro Kabukiza venga a disfrutar de una representación de teatro kabuki tradicional japonés en Ginza. Academia de Sushi de Tokio los amantes del sushi no pueden perderse la oportunidad de prepararlo con los maestros.
+
+## Foto
+
+![japonjapon](https://content-viajes.nationalgeographic.com.es/medio/2024/09/03/tokio_133ce43a_1284581217_240903122054_1280x854.jpg)
